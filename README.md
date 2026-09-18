@@ -5,6 +5,8 @@ welcome to my page.....
 
 plz visit my [sp](https://internething.straw.page/) & [ata](https://internething.atabook.org/) ♡   
 
+join my smp !! add my discord for more info: sadmachines.
+
 ![](https://komarev.com/ghpvc/?username=internething&color=8cb7db&style=plastic&label=VISITORS)
 
 
